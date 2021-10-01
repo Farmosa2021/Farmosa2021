@@ -31,4 +31,3 @@
 ![](https://i.imgur.com/JvYPXBs.png)
 ![](https://i.imgur.com/pqAJjXT.png)
 ![](https://i.imgur.com/lK5oWkQ.png)
-![](https://github.com/Farmosa2021/Farmosa2021/blob/main/Farmosa.pdf)
